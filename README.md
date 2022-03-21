@@ -167,3 +167,6 @@ You are advised to review this Privacy Policy periodically for any changes. Chan
 Contact Us
 If you have any questions about this Privacy Policy, You can contact us:https://discord.gg/etaZnyHt2b
 
+Thanks for Reading
+
+Copyright © 2021 - 2022
